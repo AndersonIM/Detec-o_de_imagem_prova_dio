@@ -1,0 +1,1 @@
+# Detec-o_de_imagem_prova_dio
